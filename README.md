@@ -1,5 +1,5 @@
 # 👋 Hey there! I'm Valsha Beewa.
-<br>👩🏻‍💻 A Cybersecurity Student and currently pursuing a Degree in Cybersecurity and Digital Forensics<br>👩🏻‍🎓 Studied Cybersecurity at Polytechnics Mauritius Ltd<br>💻 Love coding, ethical hacking, database systems, and networking challenges<br>🖼️ Editing videos and photos as a creative outlet<br>💭 Currently learning more on coding<br><br><br>
+<br>👩🏻‍💻 A Cybersecurity Student and currently pursuing a Degree in Cybersecurity and Digital Forensics<br>👩🏻‍🎓 Studing at Kingston University<br>💻 Love coding, ethical hacking, database systems, and networking challenges<br>🖼️ Editing videos and photos as a creative outlet<br>💭 Currently learning more on coding<br><br><br>
 
 
 # 🌐 Socials:
